@@ -23,4 +23,4 @@
 - LinkedIn: https://www.linkedin.com/in/jakob-eriksen-823a59205/
 
 ### ⚡ Fun fact:
-I can get my leg behind my head
+- I can get my leg behind my head
